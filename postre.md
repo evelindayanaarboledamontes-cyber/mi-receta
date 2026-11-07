@@ -12,3 +12,7 @@ Preparación
 2. Derrite el chocolate negro en el microondas o a baño maría.
 3. Mezcla el chocolate derretido con el puré de plátano hasta que quede una crema homogénea.
 4. Vierte la mezcla en vasos o moldes individuales y refrigera por al menos 2 horas. Decora con cacao antes de servir.
+
+# Tiempo de preparación 
+
+20 minutos en preparación y  refrigera por al menos 2 horas.
